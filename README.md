@@ -1,1 +1,1 @@
-# Revolutionizing-Crop-Management-A-Smart-Approach-with-WSN-and-AI-Technology
+# Revolutionizing Crop-Management-A-Smart-Approach-with-WSN-and-AI-Technology
